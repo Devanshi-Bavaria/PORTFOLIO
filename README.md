@@ -1,2 +1,2 @@
-➡ Check out my [*Portfolio*](https://devubavariaa.github.io/PORTFOLIO/)
+➡ Check out my [*Portfolio*](https://devanshi-bavaria.github.io/PORTFOLIO/)
 
